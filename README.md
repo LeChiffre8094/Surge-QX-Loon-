@@ -1,1 +1,1 @@
-# Surge-QX-Loon-Shadowrocket-Stash-
+# Surge-QX-Loon自用规则
